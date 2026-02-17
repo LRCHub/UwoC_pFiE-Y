@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "DANCING CHAMPION ～エナジーはナニーラ!?～",
+  "base_artist": "LGYankees",
+  "createdAt": "2026-02-17T13:45:46.989938Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "DANCING CHANPION ～エナジーはナニーラ!?～",
+      "artist": "LGYankees",
+      "has_synced": false,
+      "path": "select/pl_01_DANCING_CHANPION_~エナジーはナニーラ!_~_LGYankees.txt"
+    }
+  ]
+}
