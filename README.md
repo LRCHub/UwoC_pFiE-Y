@@ -1,0 +1,67 @@
+# LGYankees – DANCING CHAMPION ～エナジーはナニーラ!?～
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+行けるとこまで Go さあ皆
+そう時間はとらねぇ 短時間
+誰もが欲しがる賛美歌
+止まれなくなるほど Hurry Up
+やられちまいなこの音に
+はがされちまいな2度目の Morning
+揺れていたいな ほど遠い世界と世界が繋がるように
+いも兄ちゃん外してくれ
+エロ姉ちゃんもっとクネクネ
+マロニーちゃん熱く茄でるぜ HOTで本当スケスケ
+(Hey Clap×2) いい腰と体をうねりあげれば絶頂
+(Hey Clap×2) この現実受け止め Pray On Pray On
+こっから限度越えるテンション
+回転灯回る Floor 絶叫
+JP全土開く Gate Let's Get On
+エナジーはナニーラ?
+Party On The Floor!! (Floor)
+音に乗りな Hey, Boys＆Ladies
+Music For Life!! (Life)
+踊り狂え 楽しまねぇんだったら Dillydally
+Good Time!! (Time) やるかやられるかさ この調子
+Fly To The Sky!! (Sky)
+もっともっと飛び跳ねろ (Let's Get High)
+ナニリタスで混じり合う 奏でる呪文は
+「ナニーラ、テキーラ」全て巻きこむ
+ブラックの中で感じ合う
+So Sweet なキャラメルマキアート
+甘すぎ注意のスネークダンスに Please One
+(Hey Clap×2)
+ブラックの中フラッシュの雨が ガッテム
+(Hey Clap×2)
+F××k On The Floor Let's Fly a Way
+またまた限度越えるテンション
+回転灯回るここがレッドゾーン
+JP全土注意警報 HOT HOT HOT
+Party On The Floor!! (Floor)
+音に乗りな Hey, Boys＆Ladies
+Music For Life!! (Life)
+踊り狂え 楽しまねぇんだったら Dillydally
+Good Time!! (Time) やるかやられるかさ この調子
+Fly To The Sky!! (Sky)
+もっともっと飛び跳ねろ (Let's Get High)
+全ては Be Alright 騒げ Everybody
+Hey, Enjoy The Party 踊れ Move Your Body
+まだまだ遊べ Jamming 誰よりも Jump It
+ボリューム上げ Pump It Oh, Make So Happy
+行けるとこまで Go さあ皆
+そう時間はとらねぇ短時間
+誰もが欲しがる賛美歌
+止まれなくなるほど Hurry Up
+全ては Be Alright 騒げ Everybody
+Hey, Enjoy The Party 踊れ Move Your Body
+まだまだ遊べ Jamming 誰よりも Jump It
+ボリューム上げ Pump It Oh, Make So Happy
+Party On The Floor!! (Floor)
+音に乗りな Hey, Boys＆Ladies
+Music For Life!! (Life)
+踊り狂え 楽しまねぇんだったら Dillydally
+Good Time!! (Time) やるかやられるかさ この調子
+Fly To The Sky!! (Sky)
+もっともっと飛び跳ねろ (Let's Get High)
+```
